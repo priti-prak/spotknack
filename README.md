@@ -1,1 +1,1 @@
-I am Priitka Prakash, currently pursuing my final year UG degree in the stream of computer applications. Am also an aspiring IT professional who would definitely love to work in teams and explore new things in the current trends of computer technology.
+I am Pritika Prakash, currently pursuing my final year UG degree in the stream of computer applications. Am also an aspiring IT professional who would definitely love to work in teams and explore new things in the current trends of computer technology.
